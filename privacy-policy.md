@@ -1,6 +1,6 @@
 # Privacy Policy
 
-**Effective Date:** [Insert Today’s Date]
+**Effective Date:** June 4, 2025
 
 **Ritually** is committed to protecting your privacy. This Privacy Policy explains how we collect, use, and protect your data when you use the Ritually app.
 
